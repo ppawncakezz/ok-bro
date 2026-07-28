@@ -24,6 +24,9 @@
 
 ## <kbd>[**@gachapun**](https://github.com/gachapun)</kbd>
 
+## <kbd>[**@cherriiaxo**](https://github.com/cherriiaxo)</kbd>
+
+
 # pls tell me if I forgot to add yuu ^т⩊т^
 
 
