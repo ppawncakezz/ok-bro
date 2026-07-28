@@ -1,3 +1,5 @@
+![image alt](https://cdn.discordapp.com/attachments/1523950120159154266/1531662164673433610/Untitled26_20260728215721.png?ex=6a6a070c&is=6a68b58c&hm=fc41784510bb09457824edeaa3fcf8e8ecbd8d76e5e8f41f19945958f3bc1131&)
+
 #                ♡
 
 ![image alt](https://media.tenor.com/vveBkjRxEjwAAAAm/divider-stars.webp )
