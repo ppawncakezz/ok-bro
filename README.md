@@ -16,7 +16,7 @@
 
 ## <kbd>[**@kyleekazz**](https://github.com/kyleekazz )</kbd>
 
-## <kbd>[**@slepttena**](https://github.com/slepttena)</kbd>
+## <kbd>[**@d-cacao**](https://github.com/d-cacao)</kbd>
 
 ## <kbd>[**@s1llyjester**](https://github.com/s1llyjester )</kbd>
 
