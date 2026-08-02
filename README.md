@@ -14,6 +14,8 @@
 
 ## <kbd>[**@DragonEyeCookie**](https://github.com/DragonEyeCookie )</kbd>
 
+## <kbd>[**@Cosmothepastryy**](https://github.com/Cosmothepastryy)</kbd>
+
 ## <kbd>[**@kyleekazz**](https://github.com/kyleekazz )</kbd>
 
 ## <kbd>[**@d-cacao**](https://github.com/d-cacao)</kbd>
