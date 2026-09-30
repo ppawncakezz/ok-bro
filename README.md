@@ -16,7 +16,7 @@
 
 ## <kbd>[**@Cosmothepastryy**](https://github.com/Cosmothepastryy)</kbd>
 
-## <kbd>[**@kyleekazz**](https://github.com/kyleekazz )</kbd>
+## <kbd>[**@sproutsbakery**](https://github.com/sproutsbakery )</kbd>
 
 ## <kbd>[**@SL-L1Y**](https://github.com/SL-L1Y )</kbd>
 
